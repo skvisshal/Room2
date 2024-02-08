@@ -1,5 +1,5 @@
 Hello world!
-Grim good afternoon
+something - anything - that comes to mind.
 A poor, empty ghost waddles
 whilst watching the cat
 Magical desert
